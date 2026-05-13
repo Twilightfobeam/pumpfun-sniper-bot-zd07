@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with MEV-optimized pump.fun sniper bot | price-impact-analysis + auto-buy, the #1 pump.fun sniper bot. Includes price-impact-analysis and auto-buy for a
 
 
 
